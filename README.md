@@ -2,7 +2,7 @@
 𝚎𝚜𝚝𝚞𝚍𝚒𝚊𝚗𝚍𝚘 𝚕𝚒𝚌𝚎𝚗𝚌𝚒𝚊𝚝𝚞𝚛𝚊 𝚎𝚗 𝚜𝚒𝚜𝚝𝚎𝚖𝚊𝚜 𝚍𝚎𝚜𝚍𝚎 𝟸𝟶𝟸𝟶ㅤㅤㅤㅤㅤㅤ
 𝟷𝟿 ㅤㅤㅤㅤㅤ
 𝚜𝚙𝚊𝚗𝚒𝚜𝚑/ 𝚎𝚗𝚐𝚕𝚒𝚜𝚑ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-Link drive con apuntes y más: https://drive.google.com/drive/folders/1EOTxmP53Bc8a7FJSK4vYwr0eEpnPeZJX?usp=sharing
+Link de drive con apuntes y más de LS plan 2015, informática UNLP: https://drive.google.com/drive/folders/1EOTxmP53Bc8a7FJSK4vYwr0eEpnPeZJX?usp=sharing
 
 
 
