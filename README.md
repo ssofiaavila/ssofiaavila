@@ -1,6 +1,6 @@
 ### 𝕨𝕖𝕝𝕝𝕔𝕠𝕞𝕖
 currently -> licenciatura en sistemas, facultad de informática- UNLP /// Argentina Programaㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-19 ㅤㅤㅤㅤㅤㅤespañol/ english
+19 ㅤㅤespañol/ english
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
