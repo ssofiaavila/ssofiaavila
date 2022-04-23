@@ -1,7 +1,6 @@
 ### 𝕨𝕖𝕝𝕝𝕔𝕠𝕞𝕖
-currently -> licenciatura en sistemas, facultad de informática- UNLP /// Argentina Programaㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-𝟷𝟿 ㅤㅤㅤㅤㅤ
-español/ english
+currently -> licenciatura en sistemas, facultad de informática- UNLP /// Argentina Programaㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+𝟷𝟿 ㅤㅤㅤㅤㅤㅤespañol/ english
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
