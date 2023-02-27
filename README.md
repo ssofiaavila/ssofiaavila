@@ -1,8 +1,8 @@
 <h1 align="left">☼ ☾ ✲</h1>
 
-###
 
-<p align="left">Estudiante de informática en la UNLP y consultora junior en PYXL S.A</p>
+
+<h3 align="left">Estudiante de informática en la UNLP y consultora junior en PYXL S.A</h3>
 
 ###
 
