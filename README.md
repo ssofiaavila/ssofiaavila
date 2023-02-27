@@ -1,9 +1,6 @@
 <h1 align="left">☼ ☾ ✲</h1>
 
 
-
-<h3 align="left">Estudiante de informática en la UNLP y consultora junior en PYXL S.A</h3>
-
 ###
 
 <h2 align="left">Skills</h2>
