@@ -3,7 +3,7 @@ I'm an argentinian junior software engineer specialized with the technologies An
 
 I have been interested in the world of development since I began my university studies in 2020 at the National University of La Plata and in January 2023 I began my professional career.
 
-## Somme of my skills 🛠️
+## Some of my skills 🛠️
 <p align="left">
     <a href="https://reactjs.org/" target="_blank"> <img src="https://img.icons8.com/color/48/000000/react-native.png" alt="React"/> </a>
     <a href="https://spring.io/projects/spring-boot" target="_blank"> <img src="https://img.icons8.com/color/48/000000/spring-logo.png" alt="Spring Boot"/> </a>
