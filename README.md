@@ -21,4 +21,4 @@ I have been interested in the world of development since I began my university s
 ## How to reach me 📫
 - **Mail**: [avilasofia076@gmail.com](mailto:avilasofia076@gmail.com)
 - **Linkedin**: [https://www.linkedin.com/in/ssofiaavila/](https://www.linkedin.com/in/ssofiaavila/)
-- - **Portafolio**: [Sofia Avila Portfolio](https://ssofiaavila.github.io/)
+- **Portafolio**: [Sofia Avila Portfolio](https://ssofiaavila.github.io/)
