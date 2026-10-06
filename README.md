@@ -2,7 +2,7 @@
 <p align="center">
   🌺 Ingeniera de software SSR  <br>
   🎓 91.6% Analista Programadora Universitaria en la facultad de informática, UNLP <br>
-  📁 Este perfil es mi acceso rápido a los repositorios de las materias que fui cursando <br>
+  📁 Este perfil es mi acceso rápido a las materias que fui cursando <br>
   📫 <a href="https://www.linkedin.com/in/ssofiaavila">LinkedIn</a>
 </p>
 
